@@ -7,4 +7,4 @@ Jobbade innan som undersköterska.
 
 #### Kontakt:
 Kontakta mig på 
-E-post: [liwi2506@student.miun.se] 
+E-post: liwi2506@student.miun.se 

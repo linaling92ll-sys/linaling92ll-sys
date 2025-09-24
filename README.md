@@ -1,10 +1,10 @@
-# Hejsan!  Jag heter Lina Wiklund
+# Hejsan!  Jag heter Lina Wiklund 😎
 
 ## Om
-Jag går webbutvecklingsprogrammet.
-Jobbade innan som undersköterska.
+🏫Jag går webbutvecklingsprogrammet på Miun.  
+Jag jobbade innan som undersköterska, och det gjorde jag i ca 12 år 😮 
 
 
 #### Kontakt:
 Kontakta mig på 
-E-post: liwi2506@student.miun.se 
+📧 liwi2506@student.miun.se 
